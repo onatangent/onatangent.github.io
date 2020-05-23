@@ -8,4 +8,4 @@ I read that "the second law of thermodynamics states that the total entropy of a
 
 Let's work under the principles of experimental verification and falsification. Suppose there existed an isolated system S. Then either we are in S or we are not in S. If we are not in S, then we cannot know about S, for to know about S it would need to emit matter or energy for us to observe, in which case it would not be isolated. If we are in S, then we could never judge that it is isolated, as we would need to have knowledge about the boundary conditions of totality which could only be ascertained from a position outside these boundaries. And who could stand outside these boundaries?
 
-This argument is not intended as anything like a disproof of the second law of thermodynamics, but a problematization of its existential grip.
+This argument is not intended as anything like a disproof of the second law of thermodynamics, but a problematization of its existential grip in the sense scientists and other Schwarzgeraet experts take existence.
