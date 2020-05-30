@@ -1,4 +1,4 @@
-## A Self-Destructive Type Performs Thought Eugenocide on Herself (5/30/20)
+## Two Rights Make a Wrong (5/30/20)
 
 I can think of much better people for my parents to have reproduced with than each other, for the production of optimal people. The thing is I really do mean *optimal* by any popular moral schema of which you can think. Not that I don't have my virtues: to name two, I share with my maternal relatives a quick and airy mental dexterity and with my paternal relatives a basic good-natured simplicity. But then look at how these virtues poison one another! The instincts of a line of humble American farmers have no idea what to do with the skills of the panwestern intelligentsia, and malformities and monstrosities lean around every corner. Meanwhile an untrained good eye marks away much of what is subtle and discerning about the taste of this intelligensia for the reason that it is cruel for reasons that it cannot see; meanwhile, it becomes coarse and weary through this. This as a somewhat self-serving provisional explanation for why I am tense, eccentric, and prone to nervous spasms.
 
