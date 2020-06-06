@@ -1,3 +1,7 @@
+## A Point of Pride for Me (6/6/20)
+
+One great measure of success in my context, as synthetic as it is, is a gut that deals with any food willingly and without convulsion. Many can boast a more stable and productive digestive system than me, but they all pay for it with specialism and accordingly closemindedness.
+
 ## Two Rights Make a Wrong (5/30/20)
 
 I can think of much better people for my parents to have reproduced with than each other, for the production of optimal people. The thing is I really do mean *optimal* by any popular moral schema of which you can think. Not that I don't have my virtues: to name two, I share with my maternal relatives a quick and airy mental dexterity and with my paternal relatives a basic good-natured simplicity. But then look at how these virtues poison one another! The instincts of a line of humble American farmers have no idea what to do with the skills of the panwestern intelligentsia, and the risk of malformity and monstrosity smiles from every periphery. Meanwhile the "good eye," such a welcome balm in so many contexts, melts away much of what is subtle and discerning about the taste of this intelligensia because it is harsh for reasons that this eye cannot see; at the same time, the eye itself becomes coarse and weary through its overstrain. This as a somewhat self-serving provisional explanation for why I am tense, eccentric, and prone to nervous spasms.
