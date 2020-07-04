@@ -1,3 +1,7 @@
+## Nerves (7/4/20)
+
+What am I to do about these frequent nervous spasms? Yesterday I had to lie twitching for an hour reflecting on regrets, while at the same time musing to myself on the metaphysics of sin, while plotting out a little diagram of the epistemological situation that lets me make such abstractions as "the metaphysics of sin," and so on as far as my abstracting faculties could go given limited time under unfortunate conditions.
+
 ## Locquaciousness (7/4/20)
 
 I should write more simply in casual contexts. Not to say that my writing should be simple, but when I write as I do on this site my writing takes on many frills, see entries below. Actually I am more wildly locquacious in casual text communication than in works prepared for the academy.
