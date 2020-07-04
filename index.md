@@ -16,7 +16,7 @@ Offering a provisional example so as to give my generalization a test and see if
 
 ## A Point of Pride for Me (6/6/20)
 
-One thing I am proud of is a gut that deals with any food willingly and without convulsion. Many can boast a more stable and productive digestive system than me, but they all pay for it with specialism and accordingly closemindedness.
+One thing I am proud of is a gut that deals with any food willingly and without convulsion. Many can boast a more stable and productive digestive system than me, but they all pay for it with relative closemindedness.
 
 ## Two Rights Make a Wrong (5/30/20)
 
