@@ -1,3 +1,7 @@
+## Locquaciousness (7/4/20)
+
+I should write more simply in casual contexts. Not to say that my writing should be simple, but when I write as I do on this site my writing takes on many frills, see entries below. Actually I am more wildly locquacious in casual text communication than in works prepared for the academy.
+
 ## Thoughts on Myself as the Child of Civil Servants (7/4/20)
 
 My cop dad and teacher mother together grasp their city as the masculine and feminine arms of the state. As the child of civil servants, I am involuntarily eminently serviceable in any small matter that comes my way. Yet I do not think this quality penetrates me very deeply, and in all important things I adopt a brooding attitude maybe more typical of someone in the ranks of the educated and idle in the nineteenth-century, though certainly lacking refinement like all other characters of the 21st century. Still, whether willing it or not, I subject important matters to an aesthetic standard possessing a hint of aristocratic feeling (fortunately not much more than a hint, lest my Marxist friends come to mistrust me). Perhaps this is itself also a result of being raised by civil servants of my milieu's type of goverment, whose internal symbolic order everywhere leads eventually to a vacancy to be filled by an order of value. (An order ostensibly given by the good will of the public, though few thinking today can believe or pretend that such a public will guides the state, nor that the will that guides the state is good, nor that if such a public will were to guide the state it would be good. A sorry situation for all-- good luck! Though we still tell children things like the above and as a result our young people go through intense phases of disillusioning. Perhaps we could have high schoolers read Strauss for a laugh.)
@@ -8,7 +12,7 @@ Offering a provisional example so as to give my generalization a test and see if
 
 ## A Point of Pride for Me (6/6/20)
 
-One great measure of success in my context, as synthetic as it is, is a gut that deals with any food willingly and without convulsion. Many can boast a more stable and productive digestive system than me, but they all pay for it with specialism and accordingly closemindedness.
+One thing I am proud of is a gut that deals with any food willingly and without convulsion. Many can boast a more stable and productive digestive system than me, but they all pay for it with specialism and accordingly closemindedness.
 
 ## Two Rights Make a Wrong (5/30/20)
 
