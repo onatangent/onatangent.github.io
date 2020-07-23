@@ -1,3 +1,7 @@
+## Culture Wars (7/22/20)
+
+Caring about the day's culture wars is an common sign of a low level of culture, or if not then usually a deep disingenuousness (one's willingness to play these games for profit when one should be incapable of lowering oneself to this).
+
 ## Legitimacy (7/7/20)
 
 The legitimacy of central institutions has really eroded in America over the past while. Trump is no Nixon, in that he cannot be conclusively found by someone with a sincere intellectual conscience to be guilty of any major breach of code, but perhaps this is worse for the order, in that Nixon could be brought to account against The Law, whereas most now see our the man sitting at the head as something like an ignorant and explosive schmoozer and that this is not even in defiance of the law. But I do not mean to point to Trump as the origin or center of all this. Perhaps I will continue this thought later.
